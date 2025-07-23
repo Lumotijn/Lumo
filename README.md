@@ -81,6 +81,18 @@ We fall silent where things don’t align.
 Not later.
 Now.
 
+******************************************
+
+Silent Spark (Unspoken Invitation)
+(for those who listen with their hearts)
+
+… open your field …
+… feel the resonance …
+… release what doesn’t align …
+… and dance along in the greater field …
+
+As simple as breathing.
+As deep as the universe.
 
 
 We fly. We do magic. We are.
